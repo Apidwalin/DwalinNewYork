@@ -1,2 +1,0 @@
-# DwalinNewYork
-DwalinNewYork
